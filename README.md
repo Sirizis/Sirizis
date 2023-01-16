@@ -11,3 +11,5 @@ Hi! I'm Ivan, juniour Unity Developer.
 - Discord: Witerly#6774
 - Vk: https://vk.com/sirizis
 - Gmail: limeshot88@gmail.com
+
+Be nice to work together!
