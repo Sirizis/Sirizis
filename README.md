@@ -15,7 +15,7 @@ Unity games PC/Mobile <br/>
 Can do a medium Blender models <br/>
 
 ----My contacts---- <br/>
-Discord: retish <br/>
+Discord: retiw <br/>
 Gmail: limeshot88@gmail.com <br/>
 
 Be nice to work together!
